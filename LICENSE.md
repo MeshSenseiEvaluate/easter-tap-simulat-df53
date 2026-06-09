@@ -1,4 +1,4 @@
-# 
+# vip Scripts for easter tap simulator is the best easter tap simulator Script, featuring fly and auto-farm. Safe and powerful for all your needs.
 
 
 
